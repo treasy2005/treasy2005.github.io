@@ -3,7 +3,7 @@
 ## Internship Experience
 - **Lexscribe | PR Intern | Ongoing**  
 - **IKS with MoE | Ongoing** – Research on Dharmasastra & Modern Law  
-- **Vedseadus Legal** – Legal Drafting  
+- **Vedseadus Legal 2025** – Legal Drafting  
 - **AERHE Development Federation | Jul 2025** – Research, fundraising, debate, poster making  
 - **Sun TNL | Jun 2025** – IPR, Media & Entertainment law, contracts  
 - **Nyayavani Foundation | Jun 2025** – Legal awareness & digital literacy  
